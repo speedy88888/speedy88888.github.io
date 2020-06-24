@@ -10,3 +10,8 @@ Garfield hat orangefarbenes Fell mit charakteristischen schwarzen Streifen auf d
 
 ## Zitat
 > I'm always right, but I'm never wrong!
+
+<img src="https://banner2.cleanpng.com/20190516/pcq/kisspng-garfield-minus-garfield-odie-clip-art-portable-net-bingo-clip-art-5cde1513cd6718.4961014815580582598413.jpg"/>
+
+
+
