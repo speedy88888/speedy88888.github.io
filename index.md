@@ -7,3 +7,6 @@ Garfield hat orangefarbenes Fell mit charakteristischen schwarzen Streifen auf d
 * liebt Lasagne
 * faul & fett
 * sarkastisches Gemüt
+
+## Zitat
+> I'm always right, but I'm never wrong!
